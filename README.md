@@ -1,7 +1,7 @@
 # CONTACT
 +91 74837 89016 <br>
 gururajreddy19@gmail.com <br>
-[Linkedin](https://www.linkedin.com/in/gururaj-reddy-3735262b/) <br>
+[Linkedin](https://www.linkedin.com/in/gururaj-reddy-37352629b/) <br>
 Bengaluru, Karnataka 560032
 
 # PROFESSIONAL SUMMARY
